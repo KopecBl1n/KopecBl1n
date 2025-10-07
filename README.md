@@ -1,4 +1,4 @@
-- Hi, I'm Daniil, 17 y.o.
+- Hi, I'm Daniil, 19 y.o.
 - Student from Novosibirsk(Russia)
 OpenSource coding
 Discord: kopecbl1n
